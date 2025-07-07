@@ -8,3 +8,6 @@
 
 给我的蔚蓝视频点赞(╬◣д◢)<br>
 **[SIZUMU](https://space.bilibili.com/494826387?spm_id_from=333.1007.0.0)**<br>
+
+然后快去实践这个家伙！<br>
+**[水木_sama](https://space.bilibili.com/1359915787?spm_id_from=333.337.0.0)**<br>
